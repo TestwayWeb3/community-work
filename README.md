@@ -9,4 +9,4 @@ My contributions as a moderator and ambassador in Web3.
   - Moderator (Jul 2024 - Jan 2025): Supported community growth.
 
 ## Medium Articles
-See my translations: [Medium Profile](https://medium.com/@cuanaway).
+See my translations: [Medium Profile](https://medium.com/@testwayweb3).
